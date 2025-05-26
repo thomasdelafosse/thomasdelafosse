@@ -1,4 +1,4 @@
-www.thomasdelafosse.com
+thomasdelafosse.com
 
 <!--
 **thomasdelafosse/thomasdelafosse** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
