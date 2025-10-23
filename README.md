@@ -1,1 +1,3 @@
-www.thomasdelafosse.com
+sweetspot.paris
+maisonmine.com
+thomasdelafosse.com
