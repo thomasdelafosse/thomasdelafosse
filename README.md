@@ -1,5 +1,5 @@
-sweetspot.paris
+[sweetspot.paris](https://sweetspot.paris)
 
-maisonmine.com
+[maisonmine.com](https://maisonmine.com)
 
-thomasdelafosse.com
+[thomasdelafosse.com](https://thomasdelafosse.com)
