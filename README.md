@@ -1,4 +1,4 @@
-[sweetspot.paris](https://sweetspot.paris)
+[sweetspotsoundsystem.com](https://sweetspotsoundsystem.com/))
 
 [maisonmine.com](https://maisonmine.com)
 
